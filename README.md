@@ -8,7 +8,7 @@ The more you Faust around, the more you’ll find out.
 
 ## Projects:  
 Procrastination.  
-Installing totally Halal modes for Skyrim.  
+Installing totally Halal mods for Skyrim.  
 Glitching Soulsborne games.
 
 ## Socials:
